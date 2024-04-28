@@ -27,7 +27,7 @@ Step into a world of elegance and innovation. Join us for an exclusive journey t
 
 ---
 
-## The Experience
+## The Experience...
 
 At KyleInnovate, we don't just create software—we curate experiences. From exquisite design to unparalleled functionality, our creations are crafted with precision and passion.
 
