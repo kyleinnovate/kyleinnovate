@@ -1,6 +1,8 @@
+<!---
 <p align="center">
   <img src="your-logo.png" alt="Your Startup Logo">
 </p>
+-->
 
 # Welcome to KyleInnovate 🚀
 
