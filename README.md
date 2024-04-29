@@ -67,7 +67,7 @@ With watchful eyes and steadfast determination, our cyber security experts prote
 
 ## Ready to Begin Your Adventure?
 
-Connect with us at kyleinnovates@gmail.com
+Connect with us at info@kyleinnovate.com
  and let's embark on a luxurious adventure together!
 
 ---
